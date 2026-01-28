@@ -1,5 +1,5 @@
-## Hi there 👋
+## about me ...
 
-Computer Science @ Arizona State University
+computer science student at arizona state, futurist, megastructures look cool
 
 
